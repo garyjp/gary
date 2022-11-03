@@ -1,5 +1,5 @@
 # gary(my profile)
-broken airpods depressed guy
+Depressed guy with broken airpods
 ### language
 Japanese(Native)
 english(little)
